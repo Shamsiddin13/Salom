@@ -1,0 +1,1 @@
+Salom kimlar nima qalesan
